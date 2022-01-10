@@ -1,3 +1,5 @@
+![](https://www.osmaniye.edu.tr/Resource/Images/osmaniye-korkut-ata-universitesi.png)
+
 # OSMANİYE KORKUT ATA ÜNİVERSİTESİ
 ## SATRANÇ TOPLULUĞU
 ### ETKİNLİK DUYURU SAYFASIDIR
